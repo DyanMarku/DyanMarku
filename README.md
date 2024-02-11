@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently a college student<br>👯 I’m looking to collaborate to any project<br>🤝 I’m looking for help with coding<br>🌱 I’m currently learning programming<br>💬 Ask me about science!<br>
+🔭 I’m currently a college student<br>👯 I’m looking to collaborate to any project<br>🤝 I’m looking for help with coding<br>🌱 I’m currently learning programming<br>💬 Ask me about anything!<br>
 
 
 ## 🌐 Socials:
